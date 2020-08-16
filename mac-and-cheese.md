@@ -5,7 +5,7 @@ Serves 2
   - 2 Tablespoons Butter
   - 3 Tablespoons Flour
   - 500 mL Milk
-  - 100 g Tasty cheese
+  - 200 g Cheese (some mix of cheddar, mozzarella, and parmesan)
   - 200 g Macaroni
 
 
