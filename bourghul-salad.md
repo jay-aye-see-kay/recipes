@@ -14,7 +14,7 @@ Garnish:
   - 10 g Walnut
 Vegetables:
   - 1 Piece Eggplant
-  - 1 Pack Cherry tomatoes
+  - 2 Pack Cherry tomatoes
   - 2 Teaspoons Vegetable stock powder
   - 30 mL Olive oil
 
