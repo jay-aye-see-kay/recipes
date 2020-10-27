@@ -1,12 +1,12 @@
-Serves 2
+Serves 6
 
 
 ## Ingredients
-  - 2 Tablespoons Butter
-  - 3 Tablespoons Flour
-  - 500 mL Milk
-  - 200 g Cheese (some mix of cheddar, mozzarella, and parmesan)
-  - 200 g Macaroni
+  - 3 Tablespoons Butter
+  - 4 Tablespoons Flour
+  - 1 L Milk
+  - 400 g Cheese (some mix of cheddar, mozzarella, and parmesan)
+  - 600 g Macaroni
 
 
 ## Preparation
