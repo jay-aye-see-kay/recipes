@@ -15,3 +15,24 @@ Serves 4
   - Roll into 2cm lengths, cut into 2cm lengths
   - Optional: roll into balls, then roll over fork to texture
   - Boil for 2 - 3 mins or until all balls float
+
+
+# Butter-Sage-Sauce
+
+## Ingredients
+	- 1 onion, finely diced
+	- 3 tbs unsalted butter
+	- sage leaves
+	- 5 cloves of garlic
+	- 100g grated parmesan
+	- 4tbs cold unsalted butter
+	
+## Method
+- melt butter
+- brown onion in butter for a minute
+- add sage leaves and garlic
+- remove from heat once fragrant
+- boil gnocchi
+- add gnocchi with 1 cup of pasta water on low heat
+- turn off heat, add cold butter and parmesan
+	
