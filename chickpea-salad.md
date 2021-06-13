@@ -3,7 +3,8 @@ Serves 4
 
 ## Ingredients:
   - 1 Piece Red Onion
-  - 1 Pack Spinach
+  - 1 Pack Parsely
+  - 1 small cucumber
   - 1 Piece Feta
   - 2 Packs Cherry tomatoes
   - 400 g Chickpeas Prepared
